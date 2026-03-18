@@ -73,3 +73,5 @@ www.linkedin.com/in/christian-souzaa/
 ## ⭐ Status do projeto
 
 📈 Em constante evolução — novos exercícios e conteúdos serão adicionados conforme avanço nos estudos.
+
+   Seguimos !! 🚀
